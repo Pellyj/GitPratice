@@ -1,0 +1,1 @@
+Ca va nous faciliter la vie
