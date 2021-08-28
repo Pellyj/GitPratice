@@ -1,1 +1,1 @@
-Ca va nous faciliter la vie
+Ca va nous faciliter la vie Merci Seigneur pour le courage que tu nous de te suivre chaque jour. OKay.
